@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lnathilina
+- 👋 Hi, I’m @thilina
 - 👀 I’m interested in lot of things :3
 - 🌱 I’m currently learning Infomation Technology
 - 📫 How to reach me;

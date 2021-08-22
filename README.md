@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lnathilina
+- 👀 I’m interested in lot of things :3
+- 🌱 I’m currently learning Infomation Technology
+- 📫 How to reach me thilina.aravinda1999@gmail.com

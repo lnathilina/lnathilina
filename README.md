@@ -4,5 +4,5 @@
 - 📫 How to reach me;
 -  www.linkedin.com/in/lnataNissanka
 -  
-### “Do the right projects, and do the projects right”
-# Garry Clancy, Senior Vice President, Global Innovation & Commercialisation, PepsiCo
+# “Do the right projects, and do the projects right”
+### Garry Clancy, Senior Vice President, Global Innovation & Commercialisation, PepsiCo
